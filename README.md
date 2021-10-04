@@ -1,1 +1,0 @@
-# PracticaLab02-Oct
